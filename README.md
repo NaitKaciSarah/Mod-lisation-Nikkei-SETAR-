@@ -1,1 +1,1 @@
-# Mod-lisation-Nikkei-SETAR-
+# Modélisation-Nikkei-SETAR-
